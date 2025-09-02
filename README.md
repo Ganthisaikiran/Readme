@@ -2,7 +2,7 @@
 
 **Location:** Hyderabad, India  
 **LinkedIn:** [Ganthi Saikiran](https://www.linkedin.com/in/ganthisaikiran/)  
-**Email:** kiranadu97@gmail.com
+**Email:** kiransabd@gmail.com
 
 ---
 
@@ -84,7 +84,7 @@ I’m passionate about startup culture, technology-driven solutions, and bridgin
 ## 📫 Connect with Me
 
 - [LinkedIn](https://www.linkedin.com/in/ganthisaikiran/)
-- Email: kiranadu97@gmail.com
+- Email: kiransabd@gmail.com
 
 ---
 
